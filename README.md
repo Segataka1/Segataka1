@@ -1,1 +1,1 @@
-<img src="https://cutewallpaper.org/25/animated-cyberpunk-wallpaper-gif/cyberpunk-shape-your-computer-beautifully.gif">
+<img src="https://steamuserimages-a.akamaihd.net/ugc/940590253633411662/75CAE45764705BFF0EA3C8C6258EEEC940A028A6/?imw=512&amp;&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false">
